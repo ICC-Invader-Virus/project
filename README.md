@@ -1,8 +1,7 @@
 
 
 # Chicooooosssss
-Bajen esta carpeta mejor, solo que sobrepasa el límite de peso.... jejej
-
+Bajen esta carpeta mejor, solo que sobrepasa el límite de peso....
 Solo hagan CLICK AQUÍ: https://we.tl/t-exDbIeZX6J
 
 
